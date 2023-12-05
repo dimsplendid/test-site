@@ -1,0 +1,1 @@
+# [JR京都伊勢丹 美食餐廳介紹 茶寮都路里 中村藤吉本店 敘敘苑 Morita屋壽喜燒 | 林氏璧和美狐團三狐的小天地 (](https://linshibi.com/?p=43256)[linshibi.com](linshibi.com)[)](https://linshibi.com/?p=43256)

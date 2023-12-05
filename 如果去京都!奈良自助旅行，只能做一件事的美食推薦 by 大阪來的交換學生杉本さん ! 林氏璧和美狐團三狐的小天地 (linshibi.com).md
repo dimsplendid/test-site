@@ -1,0 +1,1 @@
+# [如果去京都/奈良自助旅行，只能做一件事的美食推薦 by 大阪來的交換學生杉本さん | 林氏璧和美狐團三狐的小天地 (](https://linshibi.com/?p=6313)[linshibi.com](linshibi.com)[)](https://linshibi.com/?p=6313)
